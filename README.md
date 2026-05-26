@@ -12,7 +12,7 @@
 
 ## Links to Related Resources 
 
-   1) Prof Seif-dot-Org:
+1) Prof Seif-dot-Org:
 https://profseifsekalala.wordpress.com/consulting/#MCC-Hope
 
    2-i) Google Drive Folder:
