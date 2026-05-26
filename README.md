@@ -11,7 +11,7 @@
 ---
 
 ## Links to Related Resources 
-Right-Click to Open in New Tab!
+## Please right-Click to Open in New Tab!
 
 1) Prof Seif-dot-Org:
 https://profseifsekalala.wordpress.com/consulting/#MCC-Hope
